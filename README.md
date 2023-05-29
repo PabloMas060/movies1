@@ -2,7 +2,7 @@
 
 ## INTEGRANTES:
 
-Pablo Mas
+Pablo Mas, 27. Lanus City
 Jazmin Salusso
 Carlos Braian Del Prado
 Maximiliano Brocato
